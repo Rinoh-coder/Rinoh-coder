@@ -4,5 +4,5 @@
 - 👀 I’m interested in coding Python and app mobile to improve my coding skills
 - 🌱 I’m currently learning deep learning
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me : 9965rinoh@gmail.com, projectvisionnaire@gmail.com
+- 📫 How to reach me : 9965rinoh@gmail.com, projectvisionnaire@gmail.com, ratombosontinaroedrino@gmail.com
 
